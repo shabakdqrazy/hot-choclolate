@@ -1,0 +1,1 @@
+Place milk, cocoa powder and sugar in a small saucepan. Heat over medium/medium-low heat, whisking frequently, until warm (but not boiling). Add chocolate chips and whisk constantly until the chocolate chips melt and distribute evenly into the milk. Whisk in vanilla extract, serve immediately.
